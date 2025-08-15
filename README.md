@@ -1,3 +1,11 @@
+Name:Darshdeep Kaur Gill
+
+Father's Name:Harjeet Singh Gill
+
+Branch:B.Tech(CSE)
+
+Registration Number:25102068
+
 # Day 1
 ## 8:30 to 9:30 
 - Shabad Kirtan in Gurudwara sahib
