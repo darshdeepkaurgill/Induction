@@ -48,4 +48,24 @@
 - Expert lecture by Dr. Priya Darshni on "Universal Human Values"
 ## 2:30 to 3:30 
 - Causmic club session 
+* Told about activities, role and hierarchy of this club
+* we were also told about the events conducted
+* companies who support this club
+* opportunities given to students
+## 3:30 to 4:00 
+- Laptop presentation
+  * We were told about various kinds of electronic devices
+  * Informative session
+  * helpful for those students who had yet to buy their laptops
+ # Day 5
+ ## 9:30 to 10:30 
+ - Chemistry Lecture(Prof. Mandeep Kaur)
+  * introduction of students to the professor
+  * everyone shared their place, 12th class school, their chemistry marks and hobbies and interests
+## 10:30 to 11:30 
+- Maths Lecture (Prof. Gagandeep Kaur)
+  * tips and tricks were given by professor
+  * marking scheme of the subejct told
+  * common mistakes of students were told
 
+    
