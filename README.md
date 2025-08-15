@@ -47,5 +47,5 @@
 ## 12:30 to 2:30 
 - Expert lecture by Dr. Priya Darshni on "Universal Human Values"
 ## 2:30 to 3:30 
-- Caismic club session 
+- Causmic club session 
 
